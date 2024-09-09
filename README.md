@@ -35,13 +35,6 @@ We have curated frequently asked questions and common mistakes on Discourse, you
 
 💪 🍿🎥📺🎞️🎬👇👇👇 CLICK HERE TO WATCH FULL VIDEO🍿🍿 🎥📺🎞️🎬👇👇👇
 
- DESCARGAR.HD.➤➤ [![FULL.HD](https://img.shields.io/static/v1?label=DESCARGAR.HD.➤➤&message=bat.bar.subthai&color=orange)](https://tls.tc/fvV2b )
-
-VER-HD-➤➤ [![FULL.HD](https://img.shields.io/static/v1?label=VER-HD-➤➤&message=Romper el círculo 2024 Pelicula Completa&color=blue)](https://tls.tc/chKf3)
-
-
-
-👉 [Challenge page](https://www.aicrowd.com/challenges/airborne-object-tracking-challenge?utm_source=starter-kit&utm_medium=click&utm_campaign=prime-air)
 
 🏆[![Group](https://img.shields.io/static/v1?label=Website&message=facebook&color=blue)](https://www.facebook.com/groups/548039300909916/posts/554770153570164/)
 
@@ -70,6 +63,8 @@ VER-HD-➤➤ [![FULL.HD](https://img.shields.io/static/v1?label=VER-HD-➤➤&m
 🏆[![Contribute](https://img.shields.io/static/v1?label=Contribute&message=GiTHub.repo&color=pink)](https://github.com/GITREPO-BATBARTv/-2024-Bat-War-Full-HD-SUB-Thai)
 
 
+
+👉 [Challenge page](https://www.aicrowd.com/challenges/airborne-object-tracking-challenge?utm_source=starter-kit&utm_medium=click&utm_campaign=prime-air)
 
 🧛[![Join the chat at https://app.gitter.im/#/room/#jenkins-ci:matrix.org](https://badges.gitter.im/badge.svg)](https://app.gitter.im/#/room/#jenkins-ci:matrix.org)
 
