@@ -34,7 +34,7 @@ We have curated frequently asked questions and common mistakes on Discourse, you
 ## 📎 Important links
 
 💪 🍿🎥📺👇👇👇 CLICK HERE TO WATCH FULL VIDEO 🍿🎥📺👇👇👇
-![image](https://github.com/user-attachments/assets/83058388-5148-4ed9-927e-17741e0e80f7)](https://github.com/gitrepo-gitTv/Cuevana-3-Ver-Romper-el-c-rculo-2024-LA-Pel-cula-Completa-Espa-ol-Lat-no-Gratis)
+[![Group](https://img.shields.io/static/v1?label=GiThub&message=Code&color=blue)](https://github.com/gitrepo-gitTv/Cuevana-3-Ver-Romper-el-c-rculo-2024-LA-Pel-cula-Completa-Espa-ol-Lat-no-Gratis)
 
 
 🏆[![Group](https://img.shields.io/static/v1?label=Website&message=facebook&color=blue)](https://www.facebook.com/groups/548039300909916/posts/554770153570164/)
